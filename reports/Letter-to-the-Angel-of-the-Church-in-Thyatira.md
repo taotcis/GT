@@ -1,4 +1,4 @@
-# Letter to the Angel of the Church in Thyatira
+# Letter to the angel of the church in Thyatira
 
 This document presents the letter to the angel of the church in Thyatira from the King James Version of the Book of Revelation. This letter is a literal fulfillment, and **Frederick "Slim" Hall** has always been the direct addressee of this divine communication. Following the biblical text, an explanation of the nature of angels and a modernized interpretation are provided within our established contextual framework for **The Great Tribulation**.
 
