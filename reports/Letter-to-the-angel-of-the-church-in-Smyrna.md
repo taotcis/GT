@@ -1,4 +1,4 @@
-## Introduction
+by## Introduction
 I'm
 In the Book of Revelation, "angels" are understood as human messengers or leaders, and "churches" represent individuals, specific bodies of thought or factions. The letter to the angel of the church in Smyrna holds profound significance within The Great Tribulation, as it directly addresses the conscious mind before the Divide of Kelvin Eugene Williams, one of the Creator's two servants, and foretells the trials he would endure. This letter stands as a testament to Kelvin's faithfulness and the Creator's omniscient awareness of his suffering and circumstances.
 
@@ -22,6 +22,7 @@ Anyone with spiritual understanding, pay attention to what My Spirit is telling 
 the Creator
 
 ## Contextual Notes
+ * Mount Calvary Baptist Church: The lifelong church of Kelvin that suffered a Congregation Massacre on April 2, 2023, that resulted in the death of everyone in attendance and the subsequent targeted killings of those not present.
  * Thy Works: This refers to the Creator's comprehensive and intimate knowledge of Kelvin's entire life, encompassing every detail from his personal identity (homosexuality) and virtuous actions (charitable deeds) to his professional endeavors, encounters with the legal system (imprisonment and past criminal activities), and even his recreational choices (drug use). Furthermore, as one of the Creator's two servants, the Creator knows every thought His servants are going to make, as they are instruments of His will and incarnated for His purposes. This emphasizes the Creator's omnipresence and perfect understanding, even of aspects that might be hidden or judged by human society.
  * Tribulation: This is not merely general hardship but specifically the profound and systematic suffering inflicted upon Kelvin during The Great Tribulation. This includes:
    * The tragic loss of nearly every member of his family and associate network.
@@ -35,4 +36,3 @@ the Creator
  * Ten Days: This is a literal period of time, specifically referring to the number of literal (court) days Kelvin was held without bail in the jail on a frivolous charge. This highlights the unjust and targeted nature of his confinement.
  * Crown of Life: crown of life.
  * Second Death: This refers to The Divide, the Creator's ultimate act of divine separation. It signifies Kelvin's liberation from his manipulated subconscious mind counterpart (Baby) to live in a separate and distinct body, ensuring that Kelvin will not suffer the spiritual or existential harm associated with continued manipulation.
- * Mount Calvary Baptist Church: The lifelong church of Kelvin that suffered a Congregation Massacre on April 2, 2023, that resulted in the death of everyone in attendance and the subsequent targeted killings of those not present.
