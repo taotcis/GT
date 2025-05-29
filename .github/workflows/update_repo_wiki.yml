@@ -1,6 +1,6 @@
 name: Update Repo Wiki
 
-7on:
+on:
   push:
     paths:
       - reports/**  
